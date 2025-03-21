@@ -8,7 +8,7 @@ Key findings include:
 These insights can be applied to various grocery stores and retailers, helping them to:
 - Optimize inventory and supply chain management
 - Develop targeted marketing campaigns and promotions
-- Enhance customer experience and loyalty
+- Enhance customer experience and loyalty 
 - Drive business growth and revenue optimization
 
 Whether you're a small independent grocery store or a large retail chain, this analysis provides actionable insights to help you stay competitive in the market and drive long-term success.
